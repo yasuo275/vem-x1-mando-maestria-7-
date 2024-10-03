@@ -1,3 +1,3 @@
 # vem-x1-mando-maestria-7
-![gif descriçâo](https://i.pinimg.com/originals/a3/b0/2b/a3b02b81ddf879f0ac71cf1f84dcc601.gif)
+![gif descriçâo](https://pa1.aminoapps.com/5959/7a4edb98213796a7bb14d9f4798bf97558f979bb_00.gif)
 main yasuo vem x1 :dash:
